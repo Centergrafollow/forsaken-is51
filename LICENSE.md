@@ -1,4 +1,4 @@
-
+Experience forsaken like never before with automatic forsaken Scripts, the #1 Script. Includes auto-collect and silent aim for unbeatable performance.
 
 
 
